@@ -1,6 +1,8 @@
 Understanding Acne and Pimples: Causes, Myths & Treatments
 Introduction
 
+https://nehasodhi.com/
+
 Acne and pimples are among the most common skin concerns affecting teenagers and adults alike. While often dismissed as a “normal” part of growing up, persistent acne can affect not just the skin but also a person’s confidence and self-esteem. At Dr. Neha Sodhi’s Skin, Hair & Laser Clinic, we focus on addressing the root causes of acne while providing safe and effective treatments tailored to every skin type.
 
 What Exactly Are Acne and Pimples?
